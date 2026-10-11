@@ -1,2 +1,0 @@
-# Gas
-Dunia tanpa batas
